@@ -14,7 +14,7 @@ Hejsan gänget, sugen på pannkaka??
 
 8 dl mjölk
 
-2 ägg
+100 ägg
 
 Smör eller margarin till stekning
 
