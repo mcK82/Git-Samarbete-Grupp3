@@ -8,7 +8,7 @@ Hejsan gänget, sugen på pannkaka??
 
 
 
-4 dl Kungsörnen Vetemjöl Special
+50 dl Kungsörnen Vetemjöl Special
 
 ½  tsk salt
 
