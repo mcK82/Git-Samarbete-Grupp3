@@ -8,13 +8,14 @@ Hejsan gänget, sugen på pannkaka??
 
 
 
+
 4 l Kungsörnen Vetemjöl Special
 
 ½  tsk salt
 
 8 l mjölk
 
-2 ägg
+100 ägg
 
 Bensin eller margarin till stekning
 
